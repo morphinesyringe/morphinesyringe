@@ -15,7 +15,7 @@
 
 
 
-;; [Rentry]([(https://rentry.co/dingybasement))  [Shared rentry](https://rentry.co/tootsierolls)  !
+;; [Rentry](https://rentry.co/dingybasement)  [Shared rentry](https://rentry.co/tootsierolls)  !
 
 
 <div id="header" align="center">
