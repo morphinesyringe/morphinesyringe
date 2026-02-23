@@ -19,7 +19,7 @@ diagnosed anxiety + depression
 
 
 
-;; [Rentry](https://rentry.co/dingybasement)  [Shared rentry](https://rentry.co/tootsierolls)  
+;; [Rentry](https://rentry.co/dingybasement)  [me and babes rentry](https://rentry.co/Wolkevinverine)  
 
 
 <div id="header" align="center">
