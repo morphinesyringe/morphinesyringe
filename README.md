@@ -1,24 +1,31 @@
 <div id="header" align="center">
- ❝ But, fear is not what you owe me. YOU OWE ME AWE. ❞
+ ❝ Kevin thought that oughta straighten things out. ❞
 <div align="center">
-<img src="https://files.catbox.moe/w593xk.png"  width="50%" heigh="3%"
+<img src="https://files.catbox.moe/s6b3ae.png"  width="50%" heigh="3%"
 
 
 <div id="header" align="center">
 
  
-𐔌   .  ⋮ 𝙑𝙞𝙣𝙣𝙮 ;; ***Hanni***   .ᐟ  ֹ   ₊ ꒱ <img src="https://files.catbox.moe/3z55xw.gif" width="20" heigh="10%">  
-‎
-𝙎𝙝𝙚 ;; 𝙃𝙚𝙧 ૮ ˶ᵔ ᵕ ᵔ˶ ა 𝙈𝙞𝙣𝙤𝙧!!
-
-𐂯 ︵︵ 𝙄𝙨𝙩𝙥-𝙩 𓏵 𝙄𝙣𝙩𝙧𝙤𝙫𝙚𝙧𝙩
+Swag or Marsey <img src="https://files.catbox.moe/ju4o73.gif" width="30" heigh="10%">  
 
 
+<img src="https://files.catbox.moe/9xcwcl.gif" width="30" heigh="10%"> she + minor
 
-;; [Rentry](https://rentry.co/dingybasement)  [Shared rentry](https://rentry.co/tootsierolls)  !
+american + german
+
+diagnosed anxiety + depression
+
+
+
+
+;; [Rentry](https://rentry.co/dingybasement)  [Shared rentry](https://rentry.co/tootsierolls)  
 
 
 <div id="header" align="center">
- <img src="https://files.catbox.moe/386f0z.png" width="20%" heigh="3%"> <img src="https://files.catbox.moe/ms9upd.png" width="20%" heigh="3%">
+ <img src="https://files.catbox.moe/lhaiiw.png" width="20%" heigh="3%"> <img src="https://files.catbox.moe/dwp4lc.png" width="20%" heigh="3%">
+ <img src="https://files.catbox.moe/t9ll29.png" width="20%" heigh="3%">
+<img src="https://files.catbox.moe/1vcb8d.png" width="20%" heigh="3%">
 
-wip
+
+
