@@ -1,7 +1,7 @@
 <div id="header" align="center">
  ❝ Kevin thought that oughta straighten things out. ❞
 <div align="center">
-<img src="https://files.catbox.moe/s6b3ae.png"  width="50%" heigh="3%"
+<img src="https://files.catbox.moe/1z8n0a.png"  width="50%" heigh="3%"
 
 
 <div id="header" align="center">
