@@ -12,7 +12,7 @@
 <div id="header" align="center">
 
 
-ѕωєєт ℓιкє ¢ιηηαмση, ℓιкє α ƒυ¢кιη ∂яєαм ιм ℓινιη ιη ‎
+<img src="https://files.catbox.moe/gpap3r.png" width="70%" height="36%">
 ‎
 
 
