@@ -18,7 +18,6 @@
 
 
                    
- [rentry](https://rentry.co/shawnaaf)
-<div align="center">
+ 
 
 
