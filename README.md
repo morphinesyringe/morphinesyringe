@@ -5,14 +5,14 @@
 　　‎
   
 <p align="center">
-<img src="https://files.catbox.moe/26lcuv.png" width="70%" height="36%"> 
+<img src="https://files.catbox.moe/wg4011.png" width="70%" height="36%"> 
 </p>
 
 
 <div id="header" align="center">
 
 
-dni antis is all I rly have to say here
+Sweet like cinnamon, like a fuckin dream im livin in
 ‎
 
 
